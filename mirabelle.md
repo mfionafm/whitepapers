@@ -118,7 +118,7 @@ By addressing the language and context issues in podcast advertising, Mirabelle 
 
 We invite collaboration from podcast platforms, advertisers, and ad tech companies to refine and implement Mirabelle. Your insights and feedback are crucial in shaping the future of podcast advertising.
 
-For further discussion or to contribute to this initiative, please contact [hello@mandyfifi.com](mailto:hello@mandyfifi.com) 
+For further discussion or to contribute to this initiative, please comment, email [hello@mandyfifi.com](mailto:hello@mandyfifi.com) or reach out via [LinkedIn](https://www.linkedin.com/in/mandyfiona/)
 
 ## **Footnotes**
 
